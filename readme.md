@@ -6,4 +6,7 @@
 ![Sebastienmervbe](https://cronitor.io/badges/UCMI4T/production/j6oaRG-NhXzKSjFEvxYBmjYDDVc.svg)
 ![Oxiz Studio](https://cronitor.io/badges/RxsCow/production/0lTU-w0SoSx803UR71trDtqvmCc.svg)
 
+[Facebook](https://www.facebook.com/profile.php?id=100072756050720)
+[Linkedin](https://www.linkedin.com/in/s%C3%A9bastien-merveille-527a6425b/)
 [Instagram](https://instagram.com/sebastienmerv)
+[Twitter](https://twitter.com/sebastienmerv)
